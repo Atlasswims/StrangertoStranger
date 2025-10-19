@@ -1,6 +1,6 @@
 *Esther My Shadow to my  Metal sonic that will be my forever ship*
   
-![Shadow vs Upgraded Metal Sonic](https://i.makeagif.com/media/8-22-2023/TcCK1K.gif)
+ok
 
 
 haiii feel free to cud(c+h) i mean y can just sit without me asking I'm comfortable with it ^_^(mostly in pt)
