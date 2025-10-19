@@ -6,7 +6,12 @@
 
 haiii feel free to cud(c+h) i mean y can just sit without me asking I'm comfortable with it ^_^(mostly in pt)
 
-*honorable mention: Noodles, mai, Neko, aaron, Kaz, sling, aivex, cleareyes, straw, cherrie ,tigery ,adore, mark, jet (will add more if i meet more amazing ppl)*
+*He's my Jester when I'm sad, he's my Weeping Angel when* I'm lonely
+
+![maxresdefault](https://github.com/user-attachments/assets/6967a828-462e-426f-910b-3f486ffb3f14)
+
+
+*honorable mention: Noodles, mai, Neko, aaron, Kaz, sling, aivex, cleareyes, straw, cherrie ,tigery ,adore, mark, jet, sam, Daniel (will add more if i meet more amazing ppl)*
 
 ![tumblr_a58691e75f4677f354a0987063d9e2d1_d0117737_1280](https://github.com/user-attachments/assets/20eea671-42d9-4c61-8108-5f687d02f293)
 
