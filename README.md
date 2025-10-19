@@ -1,6 +1,6 @@
-[shadow-vs-upgraded-metal-sonic-TcCK1K.htm](https://github.com/user-attachments/files/22990554/shadow-vs-upgraded-metal-sonic-TcCK1K.htm)  *Esther My Shadow to my  Metal sonic that will be my forever ship*
+*Esther My Shadow to my  Metal sonic that will be my forever ship*
   
-
+![Shadow vs Upgraded Metal Sonic](https://i.makeagif.com/media/8-22-2023/TcCK1K.gif)
 
 
 haiii feel free to cud(c+h) i mean y can just sit without me asking I'm comfortable with it ^_^(mostly in pt)
