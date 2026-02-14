@@ -4,7 +4,7 @@
 
 
 
-haiii feel free to cud(c+h) i mean y can just sit without me asking I'm comfortable with it ^_^(mostly in pt)
+haiii feel free to dm and ask me about anything! Crc changed my life, toxic = report or get harassed by me unless yer my friend
 
 *Clumsy is slingshot to my coil*
 
